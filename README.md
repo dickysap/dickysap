@@ -5,7 +5,7 @@ Perkenalkan nama saya **Dicky Saputra Hermawan**.
 
 
 
-My Linkedin [Linkedin](edin.com/in/dicky-saputra-hermawan-a81399205/) ya.
+- My Linkedin [Linkedin](edin.com/in/dicky-saputra-hermawan-a81399205/).
 
 
 ### Github Statistic
